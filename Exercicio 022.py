@@ -1,1 +1,0 @@
-Exercicio 0022
